@@ -4,8 +4,10 @@
 
 [also hit me up on tumblr!](https://www.tumblr.com/calindean)
 
-- I like sitting & talking with people so lmk if you want to be left alone!
+<img src="https://i.imgur.com/cKBYkqk.png" width="100"/> I like sitting & talking with people so lmk if you want to be left alone! <img src="https://i.imgur.com/3BExzD9.png" width="100"/>
 - Usually in class so w2i
+
+  
 
 <!--
 **pllayer-132/pllayer-132** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
