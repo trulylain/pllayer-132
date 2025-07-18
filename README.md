@@ -1,6 +1,7 @@
 ## what upp! I'm calin or 132 or lockley and I am super cool
 
 [check out my strawpage for everything else about me](https://moonsauce.straw.page/) 
+
 [also hit me up on tumblr!](https://www.tumblr.com/calindean)
 
 - I like sitting & talking with people so lmk if you want to be left alone!
