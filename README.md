@@ -5,6 +5,7 @@
 [also hit me up on tumblr!](https://www.tumblr.com/calindean)
 
 <img src="https://i.imgur.com/HZhAnBH.png" width="15"/> I like sitting & talking with people so lmk if you want to be left alone! 
+
 <img src="https://i.imgur.com/HZhAnBH.png" width="15"/> Usually in class so w2i...
 
   
