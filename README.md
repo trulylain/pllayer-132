@@ -8,7 +8,7 @@
 
 <img src="https://i.imgur.com/HZhAnBH.png" width="15"/> Usually in class so w2i...
 
-<img src="https://dividers.crd.co/assets/images/gallery06/1a56c58f.png?v=05d33f91" width="15"/>
+<img src="https://dividers.crd.co/assets/images/gallery06/1a56c58f.png?v=05d33f91"/>
 
   
 
