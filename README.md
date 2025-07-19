@@ -2,7 +2,8 @@
 
 <img src="https://i.imgur.com/cKBYkqk.png" width="15"/> [check out my strawpage for everything else about me](https://moonsauce.straw.page/) <img src="https://i.imgur.com/3BExzD9.png" width="15"/>
 
-[also hit me up on tumblr!](https://www.tumblr.com/calindean)
+<img src="https://i.imgur.com/cKBYkqk.png" width="15"/> [also hit me up on tumblr!](https://www.tumblr.com/calindean) <img src="https://i.imgur.com/3BExzD9.png" width="15"/>
+
 
 <img src="https://i.imgur.com/HZhAnBH.png" width="15"/> I like sitting & talking with people so lmk if you want to be left alone! 
 
