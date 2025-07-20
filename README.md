@@ -13,7 +13,6 @@
 
 <img src="https://dividers.crd.co/assets/images/gallery06/1a56c58f.png?v=05d33f91" width="500"/>
 
-speficially not youngil/001 or frontman BUT 132 (inho) from the 2015 games ...hahaha trust me in my mind theyre different... bangs on the walls of the asylum 
   
 
 <!--
