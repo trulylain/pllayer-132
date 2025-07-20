@@ -1,4 +1,4 @@
-## what upp! I'm calin or 132 or lockley and I am super cool
+## what upp! I'm calin or 132/inho or lockley and I am super cool
 
 <img src="https://i.imgur.com/cKBYkqk.png" width="15"/> [check out my strawpage](https://moonsauce.straw.page/) <img src="https://i.imgur.com/3BExzD9.png" width="15"/>
 
