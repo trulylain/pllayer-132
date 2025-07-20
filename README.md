@@ -13,6 +13,7 @@
 
 <img src="https://dividers.crd.co/assets/images/gallery06/1a56c58f.png?v=05d33f91" width="500"/>
 
+why fixate on youngil or inho when u can fixate on 132...hahaha trust me theyre different... bangs on the walls of the asylum
   
 
 <!--
