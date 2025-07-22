@@ -2,9 +2,9 @@
 
 ![](https://komarev.com/ghpvc/?username=pllayer-132&color=blue&style=for-the-badge&label=PLAYERS-STABBED&base=50&abbreviated=true)
 
-<img src="https://i.imgur.com/cKBYkqk.png" width="15"/> [check out my strawpage](https://moonsauce.straw.page/) <img src="https://i.imgur.com/3BExzD9.png" width="15"/>
+[check out my strawpage](https://moonsauce.straw.page/)
 
-<img src="https://i.imgur.com/cKBYkqk.png" width="15"/> [my tumblr!](https://www.tumblr.com/calindean) <img src="https://i.imgur.com/3BExzD9.png" width="15"/>
+[my tumblr!](https://www.tumblr.com/calindean)
 
 [my ata...](https://calindean.atabook.org/)
 
