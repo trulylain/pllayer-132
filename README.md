@@ -1,6 +1,6 @@
 ## what upp! I'm calin or 132/inho or lockley and I am super cool
 
-![](https://komarev.com/ghpvc/?username=pllayer-132&color=blue&style=plastic&label=PLAYERS-STABBED&base=50&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=pllayer-132&color=blue&style=flat&label=PLAYERS-STABBED&base=50&abbreviated=true)
 
 [check out my strawpage](https://moonsauce.straw.page/)
 
