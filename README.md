@@ -1,6 +1,4 @@
-## WHATUPPP! I'm calin or 132/inho or lockley and I am super cool
-
-everybody forget my telamon phase.......
+## WHATUPPP! I'm calin or 132/inho or lockley (or telamon i guess) and I am super cool
 
 ![](https://komarev.com/ghpvc/?username=pllayer-132&color=blue&style=flat&label=PLAYERS-STABBED&base=50&abbreviated=true)
 
