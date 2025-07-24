@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=pllayer-132&color=blue&style=flat&label=PLAYERS-STABBED&base=50&abbreviated=true)
 
-[check out my strawpage](https://moonsauce.straw.page/)
+[REMAKING STRAWPAGE!](https://moonsauce.straw.page/)
 
 [my tumblr!](https://www.tumblr.com/calindean)
 
