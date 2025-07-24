@@ -2,9 +2,9 @@
 
 ![](https://komarev.com/ghpvc/?username=pllayer-132&color=blue&style=flat&label=PLAYERS-STABBED&base=50&abbreviated=true)
 
-[im remaking this](https://moonsauce.straw.page/)
+[im remaking this strawpage...](https://moonsauce.straw.page/)
 
-[my ata](https://calindean.atabook.org/)
+[my ata!](https://calindean.atabook.org/)
 
 
 <img src="https://i.imgur.com/HZhAnBH.png" width="15"/> I like sitting & talking with people so lmk if you want to be left alone! 
