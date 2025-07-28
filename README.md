@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=pllayer-132&color=blue&style=flat&label=PLAYERS-STABBED&base=50&abbreviated=true)
 
-[im remaking this strawpage...](https://moonsauce.straw.page/)
+strawpage being remaked 
 
 [my ata!](https://calindean.atabook.org/)
 
