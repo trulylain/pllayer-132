@@ -4,6 +4,9 @@
 
 strawpage being remaked 
 
+[thing for now](https://moonsauce.straw.page/)
+
+
 [my ata!](https://calindean.atabook.org/)
 
 
