@@ -4,7 +4,7 @@
 
 strawpage being remaked 
 
-[thing for now](https://moonsauce.straw.page/)
+[dumpster fire thing for now](https://moonsauce.straw.page/)
 
 
 [my ata!](https://calindean.atabook.org/)
