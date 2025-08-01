@@ -9,7 +9,7 @@
 [my ata!](https://calindean.atabook.org/)
 
 
-<img src="https://i.imgur.com/HZhAnBH.png" width="15"/> I like sitting & talking with people so lmk if you want to be left alone! 
+<img src="https://i.imgur.com/HZhAnBH.png" width="15"/> I like sitting & talking with people so lmk if you want to be left alone! Especially if you just wanna sit w me and not make conversation lmao
 
 <img src="https://i.imgur.com/HZhAnBH.png" width="15"/> Usually in class so w2i...
 
