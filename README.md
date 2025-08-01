@@ -2,9 +2,8 @@
 
 ![](https://komarev.com/ghpvc/?username=pllayer-132&color=blue&style=flat&label=PLAYERS-STABBED&base=50&abbreviated=true)
 
-strawpage being remaked 
 
-[spam blog](https://moonsauce.straw.page/)
+[strawpage](https://calendular.straw.page/)
 
 
 [my ata!](https://calindean.atabook.org/)
